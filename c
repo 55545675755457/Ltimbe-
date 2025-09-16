@@ -1,4 +1,0 @@
-
-I love you.
-
-I hate you.
